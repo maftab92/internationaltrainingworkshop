@@ -1,0 +1,4 @@
+internationaltrainingworkshop
+=============================
+
+Introduction We are holding a training workshop on Implementation Science Research for Young Students, Psychologists, Social Workers and NGOs with the following objectives: •	To equip young professionals with knowledge and skills to conduct scientific research in the area of social sciences and public health •	To provide them supervision to conduct scientific research •	To help them publish their research work. Course Duration  •	It is going to be a 5 day training workshop followed by research work for 6 months under supervision of the trainers.  Venue •	Jehan Numa Palace Hotel, Bhopal (India) Benefits •	Participation in a 5 day training workshops •	Training material •	Hotel stay for 5 days with complementary breakfast, lunch and dinner •	Tea/Coffee during the training sessions •	Certificate of participation •	30 credit hours
